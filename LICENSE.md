@@ -1,4 +1,4 @@
-# 
+# Professionnel Adobe After Effects extensions pour Mac OS | Natif Adobe After Effects extensions pour PC Windows. Avec ralenti et incrustations personnalisées — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
